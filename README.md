@@ -24,7 +24,7 @@ Soft Skills
 Objetivo Consolidar minha carreira como Desenvolvedor Front-End Júnior, contribuir em projetos reais e crescer continuamente como profissional de tecnologia.
 
 Como me encontrar
-💼 LinkedIn: [Seu Perfil](https://www.linkedin.com/in/giovanni-wilio-clarens-ayihounkpe-dako-4b0a96251/)
+💼 LinkedIn:[ [Seu Perfil](https://www.linkedin.com/in/giovanni-wilio-clarens-ayihounkpe-dako-4b0a96251/)](https://www.linkedin.com/in/giovanni-wilio-clarens-ayihounkpe-dako-4b0a96251/)
 📧 E-mail: giovannie02@gmail.com
  
 
