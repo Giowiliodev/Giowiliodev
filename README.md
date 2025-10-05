@@ -1,4 +1,4 @@
-## Olá eu sou Gio  !! 👋
+## Olá eu sou Gio !! 👋
 
 
 Recém-formado em Análise e Desenvolvimento de Sistemas (agosto/2025), sou um estudante beninense apaixonado por tecnologia e em constante evolução. Tenho facilidade em aprender novas ferramentas e linguagens, gosto de desafios e de criar soluções que fazem a diferença.
